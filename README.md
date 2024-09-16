@@ -6,7 +6,7 @@
 
 
 ## Local Governemnt Instituions of Present Sri Lanka.
-### There operate 3 types of Local Governement Institutions at Present (from the year 1987 up to now ) in Sri Lanka. They are namely Pradeshiya Sabhas, Urban Councils and Municipal Councils and belond to the bottom layer of the Governement Structure of Country. They are created, changed, delimited and delegated power with and abolished by the Parliament of Sri Lanka whilst they are supervised and monitored by the Provincial Councils of Sri Lanka.
+### There operate 3 types of Local Governement Institutions at Present (from the year 1987 up to now ) in Sri Lanka. They are namely Pradeshiya Sabhas, Urban Councils and Municipal Councils and belond to the bottom layer of the Governement Structure of Country. They are created, changed, delimited and delegated power with and abolished by the Parliament of Sri Lanka whilst they are supervised and monitored by the Provincial Councils of Sri Lanka. They are named and declared by the Minister responsibvle for the Subject of Local Governemnt (a Cabinet Minister) of the Centrel Governement of Sri Lanka.
 ## Pradeshiya Sabhas 
 ### Pradeshiya Sabha adminstrates not much poputated or not urbanized or rural areas or usually  a Divisional Secretariate Division (a DSD), of Present Sri Lanka.They were established by The Pradeshiya Sabha Act No. 15 of 1987 By the Parliament of Sri Lanka.
 ## Urban Councils 
